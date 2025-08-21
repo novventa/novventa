@@ -2,7 +2,7 @@
 
 ### 2023.01 ~ 2023.12 | **SSAFY 9th**
 ### 2025.02 ~ 2025.07 | **SKALA 1st**
-### 2025.07 ~ Present | **HYUNDAI Autoever ADM**
+### 2025.07 ~ Present | **HYUNDAI Autoever**
 
 ---
 
